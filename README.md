@@ -5,7 +5,7 @@
 - 📫 Reach me:  
   - ✉️ Email: [kuldipkakade01@gmail.com](mailto:kuldipkakade01@gmail.com)  
   - 📞 Phone: +91 9619860187  
-  - 🔗 LinkedIn: [Let’s connect!](https://www.linkedin.com/in/yourprofile) *(add link if available)*  
+  - 🔗 LinkedIn: [Let’s connect!] https://www.linkedin.com/in/kuldip-kakade-503622145 
 - 😄 Pronouns: He/Him  
 - ⚡ Fun fact: I can analyze data trends faster than a coffee break! ☕📊
 
